@@ -6,3 +6,6 @@ I think the new cell phone law is a bit unnessecary because it it's not very nee
 
 # September 8th 2025
 Computer science has helped me strenghthen my courage to do Game and App Development. In this class, 60% of kids want to do more of their interests.
+
+# September 30th 2025
+67 is from a song. people are taking it to higher levels
