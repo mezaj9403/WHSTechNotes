@@ -11,4 +11,7 @@ Computer science has helped me strenghthen my courage to do Game and App Develop
 I think it could possibly be a bad idea because people will lose the incentive to actually physically do work
 
 # September 30th 2025
-67 is from a song. people are taking it to higher levels
+67 is from a song. people are taking it to higher levels.
+
+# October 6th 2025
+If I were in charge, I would allow every game website as long as everyone's work was done and they had 100% nothing left to do. I think that would make people like school slightly more. Also, maybe allow chatbots like ChatGPT, Gemini, and Character.ai because character.ai can help with relationships(rarely, though). Of course, no sites like Tumblr, (The Hub), or any harmful websites or malware will be allowed.
