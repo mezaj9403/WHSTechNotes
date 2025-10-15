@@ -15,3 +15,7 @@ I think it could possibly be a bad idea because people will lose the incentive t
 
 # October 6th 2025
 If I were in charge, I would allow every game website as long as everyone's work was done and they had 100% nothing left to do. I think that would make people like school slightly more. Also, maybe allow chatbots like ChatGPT, Gemini, and Character.ai because character.ai can help with relationships(rarely, though). Of course, no sites like Tumblr, (The Hub), or any harmful websites or malware will be allowed.
+
+# October 6th 2025
+
+I really liked playing Minecraft Adventure, I recently got into minecraft and now I find more joy in doing Minecraft-y stuff. Also, it taught me a lot with block stuff!
