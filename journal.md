@@ -22,3 +22,11 @@ I really liked playing Minecraft Adventure, I recently got into minecraft and no
 
 # October 20th 2025
 
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |   2   |  91A |
+| Hardeep  |   3   |  61F |
+| Marla    |   1   |  35B |
+
+----
