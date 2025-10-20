@@ -19,3 +19,6 @@ If I were in charge, I would allow every game website as long as everyone's work
 # October 6th 2025
 
 I really liked playing Minecraft Adventure, I recently got into minecraft and now I find more joy in doing Minecraft-y stuff. Also, it taught me a lot with block code and what each one does!n It was tricky though.
+
+# October 20th 2025
+
