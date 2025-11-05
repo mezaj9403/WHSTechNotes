@@ -37,3 +37,7 @@ I programmed AI to make slides about basic geometry. I would say the topic is mo
 | Tobias  |  Shrimp cevaiche   |  Apple cake |
 |  Leanne   |  Beef Wellington   |  Raspberry Tiramisu  |
 
+# November 3rd 2025
+
+If SNAP runs out of funding, they could fail to provide needs to other people in need, causing them to lose business and have to shut down.
+
