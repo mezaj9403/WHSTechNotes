@@ -41,3 +41,7 @@ I programmed AI to make slides about basic geometry. I would say the topic is mo
 
 If SNAP runs out of funding, they could fail to provide needs to other people in need, causing them to lose business and have to shut down.
 
+# November 10th 2025
+
+Technology has changed the way people celebrate holidays by video game holiday updates, the christmas tree ornaments. I know because we see them almost every day. So therefore, tech has been changing our holiday celebrating lives.
+
