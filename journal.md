@@ -45,3 +45,7 @@ If SNAP runs out of funding, they could fail to provide needs to other people in
 
 Technology has changed the way people celebrate holidays by video game holiday updates, the christmas tree ornaments. I know because we see them almost every day. So therefore, tech has been changing our holiday celebrating lives.
 
+# November 17th 2025
+
+Yes, I am very excited for thanksgiving break!
+
