@@ -55,3 +55,5 @@ Drone deliveres are pretty good
 # December 8th, 2025
 It could be that the car is just failing to detect the difference between what's a stop sign and what's just something random. But I think it could also be that Waymo is really not caring about what happens to people, because they're only in it for the money.
 
+# December 15th, 2025
+My plansm for Winter break is to sleep, play video games, and just relax.
