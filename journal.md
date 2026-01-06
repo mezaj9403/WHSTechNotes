@@ -56,4 +56,7 @@ Drone deliveres are pretty good
 It could be that the car is just failing to detect the difference between what's a stop sign and what's just something random. But I think it could also be that Waymo is really not caring about what happens to people, because they're only in it for the money.
 
 # December 15th, 2025
-My plansm for Winter break is to sleep, play video games, and just relax.
+My plans for Winter break is to sleep, play video games, and just relax.
+
+# January 6th, 2025
+I used my nintendo switch to have fun with my family members and siblings while I was visiting my grandma's. I'm counting an oven as technology so we used an oven to make King Ranch Casserole.
