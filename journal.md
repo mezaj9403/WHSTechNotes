@@ -41,6 +41,7 @@ I programmed AI to make slides about basic geometry. I would say the topic is mo
 
 If SNAP runs out of funding, they could fail to provide needs to other people in need, causing them to lose business and have to shut down.
 
+
 # November 10th, 2025
 
 Technology has changed the way people celebrate holidays by video game holiday updates, the christmas tree ornaments. I know because we see them almost every day. So therefore, tech has been changing our holiday celebrating lives.
@@ -60,3 +61,6 @@ My plans for Winter break is to sleep, play video games, and just relax.
 
 # January 6th, 2025
 I used my nintendo switch to have fun with my family members and siblings while I was visiting my grandma's. I'm counting an oven as technology so we used an oven to make King Ranch Casserole.
+
+# January 12th, 2025
+The kinds of harm are discrimination, shaming, and other horrible things. But Autcraft removes those worries for autistic people, for family friendly fun.
