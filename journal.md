@@ -67,3 +67,6 @@ The kinds of harm are discrimination, shaming, and other horrible things. But Au
 
 # January 20th, 2025
 One way technology can help create fairness is being nice and non-disciminive. This is backed up by the fact that technology has changed our lives so much. So therefore we can put a good impression by being fair.
+
+# January 29th, 2026
+I took MAP testing. Overall, everything went pretty smooth. I'm thinking about testing prep for this weekend.
