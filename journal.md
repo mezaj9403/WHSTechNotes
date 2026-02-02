@@ -70,3 +70,6 @@ One way technology can help create fairness is being nice and non-disciminive. T
 
 # January 29th, 2026
 I took MAP testing. Overall, everything went pretty smooth. I'm thinking about testing prep for this weekend.
+
+# Febuary 2nd, 2026
+Hygiene is important because it strengthens our reputation. If we smell fujnny or are socially inapporpiate it could hurt our reputation and distract others.
