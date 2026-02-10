@@ -73,3 +73,6 @@ I took MAP testing. Overall, everything went pretty smooth. I'm thinking about t
 
 # Febuary 2nd, 2026
 Hygiene is important because it strengthens our reputation. If we smell fujnny or are socially inapporpiate it could hurt our reputation and distract others.
+
+# Febuary 10th, 2026
+I didn't watch super bowl because I'm not really into it. Although football is interesting, because of the game rules and the hype for the teams.
