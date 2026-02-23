@@ -76,3 +76,6 @@ Hygiene is important because it strengthens our reputation. If we smell fujnny o
 
 # Febuary 10th, 2026
 I didn't watch super bowl because I'm not really into it. Although football is interesting, because of the game rules and the hype for the teams.
+
+# Febuary 23rd, 2026
+One technology they used in the 2026 Winter Olympics was an AI assisted replay to help with the replays. The technology was used when the athletes scored or something big happened. This affected the competition by high quality tech.
