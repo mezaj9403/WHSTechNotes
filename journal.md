@@ -79,3 +79,22 @@ I didn't watch super bowl because I'm not really into it. Although football is i
 
 # Febuary 23rd, 2026
 One technology they used in the 2026 Winter Olympics was an AI assisted replay to help with the replays. The technology was used when the athletes scored or something big happened. This affected the competition by high quality tech.
+
+# March 2nd, 2026
+1. Company name: HEB
+2. Cashier
+3. none(if you don't count basic math skills)
+4. Work experience from a similar job
+5. At least 2 languages
+6. You have to comply with HEb's code of conduct
+7. The job is a convience grocery shop where they help and serve people. Their phrase is "Here Everything's Better."
+
+
+1. Company name: Visionworks
+2. Job title: Optometrist
+3. Education required: High school diploma
+4. Must hold a Doctor of Optometry degree
+5. Multilingual
+6. The job helps with people suffereing with eye problems.
+
+I would prefer H-E-B because it's easier and more convienient. HEB requires basic math skills, like adding, subtracting, and dividing. which I already know. So therefore I would like to work there.
