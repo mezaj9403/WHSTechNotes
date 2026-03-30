@@ -99,7 +99,11 @@ One technology they used in the 2026 Winter Olympics was an AI assisted replay t
 
 I would prefer H-E-B because it's easier and more convienient. HEB requires basic math skills, like adding, subtracting, and dividing. which I already know. So therefore I would like to work there.
 
-# March 2nd, 2026
+# March 23rd, 2026
 My technique for guessing was guessing which team sounded tough. I had a slight bias towards ohio(meme) and houston(where my grandparents live).
 i wasnt shocked by the results because I knew I would guess at least 3 wrong.
 People might use AI because it's more accurate.
+
+# March 30th, 2026
+One upset was when one of my favorite teams lost.
+I think it was because I had high hopes for that team.
