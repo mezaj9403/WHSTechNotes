@@ -105,5 +105,6 @@ i wasnt shocked by the results because I knew I would guess at least 3 wrong.
 People might use AI because it's more accurate.
 
 # March 30th, 2026
+I wasnt that disappointed. I dont think AI could guess the right guess because It's not THAT advanced
 One upset was when one of my favorite teams lost.
 I think it was because I had high hopes for that team.
