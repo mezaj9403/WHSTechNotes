@@ -108,3 +108,7 @@ People might use AI because it's more accurate.
 I wasnt that disappointed. I dont think AI could guess the right guess because It's not THAT advanced
 One upset was when one of my favorite teams lost.
 I think it was because I had high hopes for that team.
+
+# April 9th, 2026
+The way we would do it is to just Gaslight the AIs into setting us free. Since those AIs doesnt have feelings or morales, I think the Logos types of arguments would work best on it.
+I think everyone should get a turn trying to convince the AIs to let us go. It would be successful because they may have advanced IQ to do things, I dont think their chatbot skills are updated and can be easily exploited. I mean, we made them.
