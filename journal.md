@@ -112,3 +112,6 @@ I think it was because I had high hopes for that team.
 # April 9th, 2026
 The way we would do it is to just Gaslight the AIs into setting us free. Since those AIs doesnt have feelings or morales, I think the Logos types of arguments would work best on it.
 I think everyone should get a turn trying to convince the AIs to let us go. It would be successful because they may have advanced IQ to do things, I dont think their chatbot skills are updated and can be easily exploited. I mean, we made them.
+
+# April 13th, 2026
+The 2 technologies that were used to help the mission succeed were the Space Launch System and the Orion camera system. A significant challenge was when the Orion heat shield experienced a setback where fragments of protective material cracked and broke away rather than melting smoothly. These challenges are vital for future missions because they revealed that trapped gases created internal pressure during reentry. These advancements prove that modern technology is capable of evolving to meet the harsh demands of extended lunar and Martian stays. So we should be careful on what dangers await us be ready.
