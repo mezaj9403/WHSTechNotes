@@ -115,3 +115,8 @@ I think everyone should get a turn trying to convince the AIs to let us go. It w
 
 # April 13th, 2026
 The 2 technologies that were used to help the mission succeed were the Space Launch System and the Orion camera system. A significant challenge was when the Orion heat shield experienced a setback where fragments of protective material cracked and broke away rather than melting smoothly. These challenges are vital for future missions because they revealed that trapped gases created internal pressure during reentry. These advancements prove that modern technology is capable of evolving to meet the harsh demands of extended lunar and Martian stays. So we should be careful on what dangers await us be ready.
+
+# April 20th, 2026
+It definitely matters if content is made by a human or an AI. Because AI can still do things that we can't. Before Sora AI 2.0 shut down, there was a lot of things that seemed very believable because there were little to no flaws of the content it generated. It greatly influences people the same way human made cintent has been. The limit I think is legit is that AI should not be on the topic or generation of:
+Political
+racial or ethcial slurs or vulgar content.
