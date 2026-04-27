@@ -118,5 +118,8 @@ The 2 technologies that were used to help the mission succeed were the Space Lau
 
 # April 20th, 2026
 It definitely matters if content is made by a human or an AI. Because AI can still do things that we can't. Before Sora AI 2.0 shut down, there was a lot of things that seemed very believable because there were little to no flaws of the content it generated. It greatly influences people the same way human made cintent has been. The limit I think is legit is that AI should not be on the topic or generation of:
-Political
+Political topics
 racial or ethcial slurs or vulgar content.
+
+# April 27th, 2026
+One thing of technology I paid attention to was reading books. Technology has influenced it by adding E-books. With the addition of E-books, people can now read without the traffic and waiting of going to a library. It's crazy how it has changed ALL of our lives. It changed things for the better, but some for the worse.
