@@ -123,3 +123,6 @@ racial or ethcial slurs or vulgar content.
 
 # April 27th, 2026
 One thing of technology I paid attention to was reading books. Technology has influenced it by adding E-books. With the addition of E-books, people can now read without the traffic and waiting of going to a library. It's crazy how it has changed ALL of our lives. It changed things for the better, but some for the worse.
+
+# May 6th, 2026
+I guess I am helping AI learn human behavior by doing the prove you're not a robot thing. There is a thing called cookies, which basically personalizes your experience when on markets or other things. This doesnt really change my view about these platforms though.
