@@ -126,3 +126,6 @@ One thing of technology I paid attention to was reading books. Technology has in
 
 # May 6th, 2026
 I guess I am helping AI learn human behavior by doing the prove you're not a robot thing. There is a thing called cookies, which basically personalizes your experience when on markets or other things. This doesnt really change my view about these platforms though.
+
+# May 18th, 2026
+I would describe Romello Smith as a circle headed person with short round hair and glasses, with a gray sweater occasionally worn.
