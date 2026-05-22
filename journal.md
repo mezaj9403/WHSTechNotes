@@ -128,7 +128,7 @@ One thing of technology I paid attention to was reading books. Technology has in
 I guess I am helping AI learn human behavior by doing the prove you're not a robot thing. There is a thing called cookies, which basically personalizes your experience when on markets or other things. This doesnt really change my view about these platforms though.
 
 # May 11th, 2026
-I grew a lot in communication. My ELAR teacher makes me say the proper way to ask to sharpen my pencil. Also with my friends I know what to say, what not to say, and when the right time it is to say something. Honestly I learned it from my friends, mostly how they acted and learned from them. I never thought I would learn something from my friends!
+I grew a lot in communication throughout this year. My ELAR teacher(Ms. Satterfield) makes me say the proper way to ask to sharpen my pencil. Also with my friends I know what to say, what not to say, and when the right time it is to say something. Honestly I learned it from my friends, mostly how they acted and learned from them. I never thought I would learn something from my friends!
 
 # May 18th, 2026
 I would describe Romello Smith as a circle headed person with short round hair and glasses, with a gray sweater occasionally worn.
